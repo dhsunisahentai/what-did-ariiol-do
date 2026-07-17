@@ -16,7 +16,7 @@ He also abandoned his academic future to chase quick wealth in Shanghai ahead of
 
 After collaborating with Volta andother producers on a Hyperflip track (from which he allegedly profited), he posted on his X(formerly Twitter) alt account @ariiol_sub that the Spring M3 event would be his "last dance" in electronic music,announcing his plan to switch entirely to pop music. After being called out by the community for this statement, he issued an insincere, half-hearted apology in group chats, claiming he "never intended to quit electronic music".
 
-He also fabricated claims that hesuffers from NPD (Narcissistic Personality Disorder) as an excusefor his problematic behavior. It is worth mentioning that NPD has 50% treatment success rate with professional intervention; mental illnesses left untreated only hurt oneself and everyone around them,and he ought to seek medical treatment immediately if he truly has psychological issues.
+He also fabricated claims that hesuffers from [NPD (Narcissistic Personality Disorder)](https://en.wikipedia.org/wiki/Narcissistic_personality_disorder) as an excusefor his problematic behavior. It is worth mentioning that NPD has 50% treatment success rate with professional intervention; mental illnesses left untreated only hurt oneself and everyone around them,and he ought to seek medical treatment immediately if he truly has psychological issues.
 
 ## 3. Envy
 
