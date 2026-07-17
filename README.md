@@ -19,7 +19,7 @@ On his birthday, he **unfollowed** and **blocked** small, low-traffic creators w
 
 He also abandoned his academic future to chase quick wealth in Shanghai ahead of his unified college entrance examinations. He ultimately failed to get rich and completely ruined his chance of obtaining a bachelor's degree.
 
-After collaborating with Volta andother producers on a Hyperflip track (from which he allegedly profited), he posted on his [X(formerly Twitter) alt account @ariiol_sub](https://x.com/ariiol_sub) that the Spring M3 event would be his "last dance" in electronic music,announcing his plan to switch entirely to pop music. After being called out by the community for this statement, he issued an insincere, half-hearted apology in group chats, claiming he "never intended to quit electronic music".
+After collaborating with Volta and other producers on a Hyperflip track (from which he allegedly profited), he posted on his [X(formerly Twitter) alt account @ariiol_sub](https://x.com/ariiol_sub) that the Spring M3 event would be his "last dance" in electronic music,announcing his plan to switch entirely to pop music. After being called out by the community for this statement, he issued an insincere, half-hearted apology in group chats, claiming he "never intended to quit electronic music".
 > <img title="the post about his quit on his alt account" src="./evidence/4.jpg" alt="1.jpg" width="200">\
 > the post about his quit on his alt account
 
