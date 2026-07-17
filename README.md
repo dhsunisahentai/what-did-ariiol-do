@@ -15,8 +15,12 @@ On his birthday, he **unfollowed** and **blocked** small, low-traffic creators w
 He also abandoned his academic future to chase quick wealth in Shanghai ahead of his unified college entrance examinations. He ultimately failed to get rich and completely ruined his chance of obtaining a bachelor's degree.
 
 After collaborating with Volta andother producers on a Hyperflip track (from which he allegedly profited), he posted on his [X(formerly Twitter) alt account @ariiol_sub](https://x.com/ariiol_sub) that the Spring M3 event would be his "last dance" in electronic music,announcing his plan to switch entirely to pop music. After being called out by the community for this statement, he issued an insincere, half-hearted apology in group chats, claiming he "never intended to quit electronic music".
+> <img title="the post about his quit on his alt account" src="./evidence/4.jpg" alt="1.jpg" width="422">
+> the post about his quit on his alt account
 
 He also fabricated claims that hesuffers from [NPD (Narcissistic Personality Disorder)](https://en.wikipedia.org/wiki/Narcissistic_personality_disorder) as an excusefor his problematic behavior. It is worth mentioning that NPD has 50% treatment success rate with professional intervention; mental illnesses left untreated only hurt oneself and everyone around them,and he ought to seek medical treatment immediately if he truly has psychological issues.
+> <img title="the post about his NPD on his alt account" src="./evidence/5.jpg" alt="1.jpg" width="422">
+> the post about his NPD on his alt account
 
 ## 3. Envy
 
@@ -29,8 +33,8 @@ Ariiol unilaterally deleted his BOF competition entry IOR after apersonal confli
 ## 5. Sloth
 
 He often makes up sob stories about being unable to pay rent to beg for donations from fans, while raising his commission prices at the same time. Instead of using the money for living expenses, he spends fan donations indulging in the arcade rhythm game [MaiMaiDX](https://maimai.sega.com/).
-> spends fan donations evidence
 > <img title="spends fan donations evidence" src="./evidence/1.jpg" alt="1.jpg" width="422">
+> spends fan donations evidence
 
 He also commits unprofessional plagiarism by reselling old tracks he released publicly online as exclusive custom commercial works for his client, Paradigm Origin.
 
