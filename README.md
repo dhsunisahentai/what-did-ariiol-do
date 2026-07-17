@@ -3,8 +3,14 @@
 ## 1. Greed
 
 Ariiol attempted to profit off his fanbase by selling blank unrecorded music discs to squeeze money from supporters, yet he has never treated his fans as genuine audiences or respected their support.
+> <img title="Ariiol CD post" src="./evidence/8.png" alt="8.png" width="422">
+> Ariiol's post about CD
 
 Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he **never once** offered to return the device, eventhough he earns roughly 1800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
+> <img title="Lu's evidence 1" src="./evidence/2.jpg" alt="2.jpg" width="422">
+> <img title="Lu's evidence 2" src="./evidence/6.jpg" alt="6.jpg" width="422">
+> <img title="Lu's evidence 3" src="./evidence/7.jpg" alt="7.jpg" width="422">
+> Lu's Evidence
 
 ## 2. Arrogance
 
