@@ -4,13 +4,13 @@
 
 Arriol attempted to profit off his fanbase by selling blank unrecorded music discs to squeeze money from supporters, yet he has never treated his fans as genuine audiences or respected their support.
 
-Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he never once offered to return the device, eventhough he earns roughly 1800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
+Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he **never once** offered to return the device, eventhough he earns roughly 1800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
 
 ## 2. Arrogance
 
-After rising to fame in the electronicmusic scene, Arriol unfriended andcut off contact with almost all non-top-tier producers in the community. He publicly stated that other creators should not imitate his works, arrogantly comparing himself to wowaka. In reality, his so-called original style is nothing more than stacking hi-hats on basic kick patterns, yet he hype this mediocre technique as aninnovative musical breakthrough.
+After rising to fame in the electronicmusic scene, Arriol **unfriended** and **cut off** contact with almost all non-top-tier producers in the community. He publicly stated that other creators should not imitate his works, arrogantly comparing himself to wowaka. In reality, his so-called original style is nothing more than stacking hi-hats on basic kick patterns, yet he hype this mediocre technique as aninnovative musical breakthrough.
 
-On his birthday, he unfollowed and blocked small, low-traffic creators who sent him sincere birthday wishes.
+On his birthday, he **unfollowed** and **blocked** small, low-traffic creators who sent him sincere birthday wishes.
 
 He also abandoned his academic future to chase quick wealth in Shanghai ahead of his unified college entrance examinations. He ultimately failed to get rich and completely ruined his chance of obtaining a bachelor's degree.
 
@@ -40,6 +40,6 @@ Driven by endless selfish desire,Arriol deleted Lu from his contact list without
 
 On his X(fromerly Twitter) main account, Arriol built a fake persona of "studying Japanese diligently" despite not even being able to recognize basic Japanese kana. When facing career and public pressure, he vented emotionally to Japanese netizens,craved their sympathy, and expressed an excessive desire tomove to Japan.
 
-Additional Commentary & Final Thoughts
+## Additional Commentary & Final Thoughts (By 叶留宸/Sseeasm)
 
 The community once believed that IOR would mark the start of Arriol's peak musical career, yet it turned out to be nothing more than a fleeting flash of talent. All of his subsequent tracks, which he markets as his "unique personastyle", are merely clumsy, repetitive imitations of his old works, relying entirely on mindless stacking of pitched vocal chops with no real musical innovation or progression.
