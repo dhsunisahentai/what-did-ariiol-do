@@ -28,7 +28,7 @@ Arriol unilaterally deleted his BOF competition entry IOR after apersonal confli
 
 ## 5. Sloth
 
-He often makes up sob stories about being unable to pay rent to beg for donations from fans, while raising his commission prices at the same time. Instead of using the money for living expenses, he spends fan donations indulging in the arcade rhythm game MaiMaiDX.
+He often makes up sob stories about being unable to pay rent to beg for donations from fans, while raising his commission prices at the same time. Instead of using the money for living expenses, he spends fan donations indulging in the arcade rhythm game [MaiMaiDX](https://maimai.sega.com/).
 > spends fan donations evidence
 > <img title="spends fan donations evidence" src="./evidence/1.jpg" alt="1.jpg" width="422">
 
