@@ -6,10 +6,10 @@ Ariiol attempted to profit off his fanbase by selling blank unrecorded music dis
 > <img title="Ariiol CD post" src="./evidence/8.png" alt="8.png" width="422">\
 > Ariiol's post about CD
 
-Hе explicitly asked the PV creator Liu for an iPhone 11 as a gift. After falling out with Liu, he **never once** offered to return the device, eventhough he earns roughly 1800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Liu after public backlash and negative public opinion began to spread against him.
-> <img title="Liu's evidence 1" src="./evidence/6.jpg" alt="6.jpg" width="200">\
-> <img title="Liu's evidence 2" src="./evidence/7.jpg" alt="7.jpg" width="200">\
-> Liu's Evidence
+Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he **never once** offered to return the device, eventhough he earns roughly 1800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
+> <img title="Lu's evidence 1" src="./evidence/6.jpg" alt="6.jpg" width="200">\
+> <img title="Lu's evidence 2" src="./evidence/7.jpg" alt="7.jpg" width="200">\
+> Lu's Evidence
 
 ## 2. Arrogance
 
@@ -33,9 +33,9 @@ He refuses to tolerate any negative comments or objective criticism about his wo
 
 ## 4. Wrath
 
-Ariiol unilaterally deleted his BOF competition entry IOR after apersonal conflict with PV creator Liu, throwing a fit and portraying himself as an innocent victim to the public. In stark contrast, Liu completed all PV production work for the project completely free of charge and never asked for any рaуment.
-> <img title="Liu's response about Ariiol deleted his BOF competition PV" src="./evidence/2.jpg" alt="2.jpg" width="200">\
-> Liu's response about Ariiol deleted his BOF competition PV
+Ariiol unilaterally deleted his BOF competition entry IOR after apersonal conflict with PV creator Lu, throwing a fit and portraying himself as an innocent victim to the public. In stark contrast, Lu completed all PV production work for the project completely free of charge and never asked for any рaуment.
+> <img title="Lu's response about Ariiol deleted his BOF competition PV" src="./evidence/2.jpg" alt="2.jpg" width="200">\
+> Lu's response about Ariiol deleted his BOF competition PV
 
 ## 5. Sloth
 
@@ -47,7 +47,7 @@ He also commits unprofessional plagiarism by reselling old tracks he released pu
 
 ## 6. Gluttony (Insatiable Greed)
 
-Driven by endless selfish desire,Ariiol deleted Liu from his contact list without hesitation--this is the same Liu who gifted him a free iPhone 11, a high-value device he still refuses to return voluntarily.
+Driven by endless selfish desire,Ariiol deleted Lu from his contact list without hesitation--this is the same Lu who gifted him a free iPhone 11, a high-value device he still refuses to return voluntarily.
 
 ## 7. Lust & False Persona
 
