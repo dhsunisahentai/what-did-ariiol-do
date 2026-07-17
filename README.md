@@ -6,7 +6,7 @@ Ariiol attempted to profit off his fanbase by selling blank unrecorded music dis
 > <img title="Ariiol CD post" src="./evidence/8.png" alt="8.png" width="422">\
 > Ariiol's post about CD
 
-Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he **never once** offered to return the device, eventhough he earns roughly 1800 RMB(This is equivalent to approximately US$265, calculated based on the exchange rate at 14:05 China time on July 17, 2026.) per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
+Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he **never once** offered to return the device, eventhough he earns roughly 1800 RMB(This is equivalent to approximately US$265, calculated based on the exchange rate at 14:05 Beijing time on July 17, 2026.) per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
 > <img title="Lu's evidence 1" src="./evidence/6.jpg" alt="6.jpg" width="200">\
 > <img title="Lu's evidence 2" src="./evidence/7.jpg" alt="7.jpg" width="200">\
 > Lu's Evidence
