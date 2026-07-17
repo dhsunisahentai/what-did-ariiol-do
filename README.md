@@ -24,8 +24,8 @@ After collaborating with Volta andother producers on a Hyperflip track (from whi
 > the post about his quit on his alt account
 
 He also fabricated claims that hesuffers from [NPD (Narcissistic Personality Disorder)](https://en.wikipedia.org/wiki/Narcissistic_personality_disorder) as an excusefor his problematic behavior. It is worth mentioning that NPD has 50% treatment success rate with professional intervention; mental illnesses left untreated only hurt oneself and everyone around them,and he ought to seek medical treatment immediately if he truly has psychological issues.
-> <img title="the post about his NPD on his alt account" src="./evidence/5.jpg" alt="1.jpg" width="200">\
-> the post about his NPD on his alt account
+> <img title="the post about his NPD on his main account" src="./evidence/5.jpg" alt="1.jpg" width="200">\
+> the post about his NPD on his main account
 
 ## 3. Envy
 
