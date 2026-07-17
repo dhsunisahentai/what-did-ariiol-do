@@ -1,10 +1,10 @@
-**Arriol's Misconduct Record(Excerpted from Group Chat Records)**
+**Arriol's Misconduct Record (Excerpted from Group Chat Records)**
 
 ## 1. Greed
 
 Arriol attempted to profit off his fanbase by selling blank unrecorded music discs to squeeze money from supporters, yet he has never treated his fans as genuine audiences or respected their support.
 
-Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he never once offered to return the device, eventhough he earns roughly 1,800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
+Hе explicitly asked the PV creator Lu for an iPhone 11 as a gift. After falling out with Lu, he never once offered to return the device, eventhough he earns roughly 1800 RMB per commission on the art platform Mix画师. He only claimed to "have the intention of repaying" Lu after public backlash and negative public opinion began to spread against him.
 
 ## 2. Arrogance
 
