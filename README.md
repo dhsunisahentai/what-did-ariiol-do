@@ -28,7 +28,7 @@ Arriol unilaterally deleted his BOF competition entry IOR after apersonal confli
 
 ## 5. Sloth
 
-He often makes up sob stories about being unable to pay rent to beg for donations from fans, while raising his commission prices at the same time. Instead of using the money for living expenses, he spends fan donations indulging in the arcade rhythm game MaiMaiDX.
+He often makes up sob stories about being unable to pay rent to beg for donations from fans, while raising his commission prices at the same time. Instead of using the money for living expenses, [he spends fan donations indulging in the arcade rhythm game MaiMaiDX](./evidence/1.jpg).
 
 He also commits unprofessional plagiarism by reselling old tracks he released publicly online as exclusive custom commercial works for his client, Paradigm Origin.
 
