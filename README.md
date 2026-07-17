@@ -51,7 +51,7 @@ Driven by endless selfish desire,Ariiol deleted Lu from his contact list without
 
 ## 7. Lust & False Persona
 
-On his [X(formerly Twitter) main account @ariiol_](https://x.com/ariiol_), Ariiol built a fake persona of "studying Japanese diligently" despite not even being able to recognize basic Japanese kana. When facing career and public pressure, he vented emotionally to Japanese netizens,craved their sympathy, and expressed an excessive desire tomove to Japan.
+On his [X(formerly Twitter) main account @ariiol_](https://x.com/ariiol_), Ariiol built a fake persona of "studying Japanese diligently" despite not even being able to recognize basic Japanese kana. When facing career and public pressure, he vented emotionally to Japanese netizens,craved their sympathy, and expressed an excessive desire to move to Japan.
 
 ## Additional Commentary & Final Thoughts (By 叶留宸/Sseeasm)
 
