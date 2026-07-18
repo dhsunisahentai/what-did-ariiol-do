@@ -1,6 +1,4 @@
-我真的撤了吗，**我还没撤**
-<br>
-先将本仓库设置为Archive吧
+**Archived**
 <br>
 **[Ariiol](https://space.bilibili.com/432511655)'s Misconduct Record (Excerpted from Group Chat Records)**
 
