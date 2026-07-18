@@ -1,7 +1,7 @@
-> [!WARNING]
-> Ariiol is suspected of fraud after investigation by 叶留宸/Sseeasm, with the known amount involved reaching 4400 RMB(This is equivalent to approximately US$649, calculated based on the exchange rate at 16:47 Beijing time on July 17, 2026).\
-> I will continue to update the amount involved in the case until it reaches the threshold for filing a case in China.
-
+我真的撤了吗，**我还没撤**
+<br>
+先将本仓库设置为Archive吧
+<br>
 **[Ariiol](https://space.bilibili.com/432511655)'s Misconduct Record (Excerpted from Group Chat Records)**
 
 ## 1. Greed
